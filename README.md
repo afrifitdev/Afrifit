@@ -39,7 +39,7 @@ Version 2.0
 
 👩‍💼 Founder
 
-Joy Muhoma
+Joyce Muhoma
 
 ---
 
